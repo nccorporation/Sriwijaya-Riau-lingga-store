@@ -1,2 +1,2 @@
-# Sriwijaya-Riau-lingga-store
+https://usz7a7uobehrw.ok.kimi.link
 Sedikit
